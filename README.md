@@ -1,4 +1,4 @@
-### My Portfolio!
+### My Portfolio
 
 Pursuing a Computer Science degree at the University of St. Thomas has been a fun and challenging experience. The University of St. Thomas educates students to be morally responsible leaders who think critically, act wisely, and work skillfully to advance the common good. I can wholeheartedly say this mission was fulfilled, I've gained real skills I can use and also a sense of direction throughout my time here.
 
